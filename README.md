@@ -19,7 +19,7 @@ Whether you're at work, school, out and about, or just not using your PC — sim
 
 No report can get you banned — guaranteed! ✅
 
-📺 I regularly post update videos on my YouTube channel (they're in Turkish, but you can enable auto English subtitles) : [URL="https://www.youtube.com/@GARIPFSH"]YOUTUBE CHANNEL[/URL]
+📺 I regularly post update videos on my YouTube channel (they're in Turkish, but you can enable auto English subtitles) : https://www.youtube.com/@GARIPFSH"]YOUTUBE CHANNEL[/URL]
 💬 Join my Discord :  https://discord.gg/R3UVXCGJ7Q
 
 
